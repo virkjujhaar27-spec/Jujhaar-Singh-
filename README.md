@@ -1,1 +1,1 @@
-# Jujhaar-Singh-
+# Day 1
